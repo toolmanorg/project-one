@@ -1,1 +1,1 @@
-not ready for prime time
+Sorry, we're not ready for prime time.
